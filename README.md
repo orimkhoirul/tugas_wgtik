@@ -1,1 +1,2 @@
 # tugas_wgtik
+Baru
