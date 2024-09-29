@@ -1,2 +1,2 @@
 # tugas_wgtik
-Baru
+Baru Banget
